@@ -12,4 +12,4 @@
 
 ## Instructions
 
-TODO: these are missing
+- cook the pasta in salted wated for 8 minutes after boiling 

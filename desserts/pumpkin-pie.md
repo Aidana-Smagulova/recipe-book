@@ -3,7 +3,7 @@
 
 ## Preparation
 
-- Remove seeds
+- Remove seeds (or take store-bought ones)
 - Bake pumpkin/squash
 - Take out the inside of the pumpkin
 - Use 2 cups of pumpkin pulp per pie
@@ -35,3 +35,5 @@
 
 - 15 min at 425 F
 - 40-50 min at 350 F
+
+enjoy! 
